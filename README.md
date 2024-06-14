@@ -1,0 +1,1 @@
+My research was selected to be featured on the Vancouver School of Economics Honours Students Poster Session site and can be found here: https://economics.ubc.ca/honours-students-poster/do-costco-openings-increase-nearby-property-values-evidence-from-the-u-s-silas-kwok/
